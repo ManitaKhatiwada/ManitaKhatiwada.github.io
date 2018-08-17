@@ -17,7 +17,8 @@ PHP Markdown - a library package that includes the PHP Markdown parser and its s
 Markdig - A .NET library that follows the CommonMark specifications, and includes a collection of extensions and the ability for the user to create their own.
 
 
-My skills:
+**My skills**:
+
 1.Python
 2.HTML
 3.CSS
