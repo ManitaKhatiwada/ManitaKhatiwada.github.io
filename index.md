@@ -67,13 +67,21 @@ Makwanpur
 
 
 **Software Skills**
+
 1.Python
+
 2.HTML
+
 3.CSS
+
 4.MySql
+
 5.Graphics
+
 6.Use of freehand in graphics designing
+
 7.Use of photoshop in web designing
+
 8.Fluency in English and Nepali speaking, writing and as well and Hindi speaking is also good
 
 
