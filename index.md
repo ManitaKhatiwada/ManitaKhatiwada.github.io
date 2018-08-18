@@ -23,7 +23,7 @@ Email:khatiwadamanita@gmail.com
 
 
 2017           B.Sc.CSIT, New Summit College,Old-Baneshwor,KTM
-,(1st Year, 2nd semester running)
+,(2nd Year, 4th semester running)
 
 
 2016	+2 HSEB, Hetauda School of Management and Social Sciences, Hetauda, 
@@ -37,7 +37,10 @@ Makwanpur
 **PROFESSIONAL TRAININGS** 
 
 
-•	Participated on “Tech Camp Nepal” organized by “EMFOUND(Ellaine Memorial Foundaton”.
+•	Participated on “Tech Camp Nepal” organized by “EMFOUND(Ellaine Memorial Foundaton)”.
+
+
+•	Participated on “Nepal Youth Conference” organized by “Nepal Youth Council” 
 
 
 •	Participated in “Career Counseling” organized by Colleges in 2017
@@ -53,6 +56,11 @@ Makwanpur
 
 
 •	Organized Blood donation program with SITS team. 
+
+ 
+•	Organized Tech Trix Nepal 2018 with SITS team
+
+
 
 
 
