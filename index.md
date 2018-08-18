@@ -4,25 +4,34 @@ Manita Khatiwada
 
 
 
+
 Nationality: Nepali
+
 
 Permanent address: Hetauda-8,Makawanpur, Nepal
 
+
 Contact: +977-9867760930
+
 
 Email:khatiwadamanita@gmail.com
 
 
 
+
 **EDUCATION**
+
 
 2017           B.Sc.CSIT, New Summit College,Old-Baneshwor,KTM
 ,(1st Year, 2nd semester running)
 
+
 2016	+2 HSEB, Hetauda School of Management and Social Sciences, Hetauda, 
 Makwanpur 
 
+
 2014           SLC G.S.Niketan Higher Secondary School (79%) 
+
 
 
 **PROFESSIONAL TRAININGS** 
@@ -30,15 +39,21 @@ Makwanpur
 
 •	Participated on “Tech Camp Nepal” organized by “EMFOUND(Ellaine Memorial Foundaton”.
 
+
 •	Participated in “Career Counseling” organized by Colleges in 2017
+
 
 •	Training on Web Designing using Photoshop organized by “Bermuda Triangle”
 
+
 •	Training on “Graphics Designing” using freehand organized by “Open eyes IT Solution”
+
 
 •	Executive member of SITS(Summiters Information Technology Society) which is the IT club of our college.
 
+
 •	Organized Blood donation program with SITS team. 
+
 
 
 
