@@ -4,9 +4,12 @@ Manita Khatiwada
 
 
 
-Nationality: Nepali 
+Nationality: Nepali
+
 Permanent address: Hetauda-8,Makawanpur, Nepal
+
 Contact: +977-9867760930
+
 Email:khatiwadamanita@gmail.com
 
 
